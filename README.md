@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on end-to-end Gen AI projects
 - 📫 How to reach me shibani1009@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: 
+- ⚡ Fun fact: OMG! I have nothing to put here!!!😲 Am I so boring 😐!! Oh No!!! I can be dramatic sometimes 😉.. 
 
 <!---
 Shibani1009/Shibani1009 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
